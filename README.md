@@ -1,1 +1,1 @@
-# mynftprofiles
+# MY NFT PROFILES
