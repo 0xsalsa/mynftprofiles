@@ -1,4 +1,4 @@
-# MY NFT PROFILE
+# MY NFT PROFILES
 - 0xsalsa (1).jpg
 - 0xsalsa (2).jpg
 - 0xsalsa (3).jpg
